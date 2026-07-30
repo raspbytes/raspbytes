@@ -1,3 +1,3 @@
- 💻 **student • cs tinkerer • spotify addict** 🤍
+ 💻 **student • cs & bio student • chronic spotify user** 🤍
 
-"and like the moon, we must go through phases of emptiness to feel full again"  🌧🌙
+"locking in is the only way out"  🌧🌙
