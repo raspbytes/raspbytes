@@ -1,4 +1,4 @@
- 💻 **student • cs & bio student • chronic spotify user** 🤍
+ 💻 **student • cs & bio student** 🤍
  
 I'm a student interested in cybersecurity, web development, and DSA. 
 
