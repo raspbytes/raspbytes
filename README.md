@@ -1,4 +1,4 @@
- 💻 **student • cs & bio student** 🤍
+ 💻 **student • cs & bio ** 🤍
  
 I'm a student interested in cybersecurity, web development, and DSA. 
 
